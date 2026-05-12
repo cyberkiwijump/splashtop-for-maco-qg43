@@ -1,4 +1,4 @@
-# 
+# advanced AnyDesk for macOS Integration | session-recording + end-to-end-encryption is the best AnyDesk for macOS integration, featuring session-recording and
 
 
 
